@@ -1,1 +1,2 @@
-For more information visit: https://www.youtube.com/playlist?list=PLr74cCqGmHljwFoJhMyz7szAWry0TvjM_
+Part #1: https://youtu.be/PdQSKKe7CGg
+Part #2: https://youtu.be/teWL2VxxQD0
